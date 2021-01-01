@@ -2,6 +2,15 @@
 
 Offline hindi Typing, you can easily Offline hindi Typing from home. The big advantage of offline hindi typing tutor is that you will not need internet to learn hindi typing. You can learn typing at home without the net. We are glad to know that you want to use our hindi typing tutor. We will try our best to help you. That is why we have prepared a good and easy hindi typing tutor for you. In it you can learn hindi typing very easily and quickly. With the help of this you can easily pass the official hindi typing test. Then why are you waiting, use our offline typing as soon as possible and learn hindi typing.
 
+Online Hindi Typing Language
+If you do not want to download online hindi typing software or offline software does not work in your system then you can learn online hindi typing with the help of our online software. To use online hindi typing software click on the link below:
+👇👇👇 Ｕｓｅ Ｏｎｌｉｎｅ Ｈｉｎｄｉ Ｔｙｐｉｎｇ 👇👇👇👇
+https://www.typingpoint.com/hindi/offline-hindi-typing
+
+Offline Hindi typing Language
+If you do not have internet or do not have internet all the time and you have problems using online hindi typing then you can use our offline software. With our offline software you can easily learn hindi typing without internet. To use offline hindi typing software click on the link below:
+
+👇👇👇 Ｄｏｗｎｌｏａｄ Ｈｉｎｄｉ Ｔｙｐｉｎｇ Ｍａｓｔｅｒ 👇👇👇👇
 https://www.typingpoint.com/hindi/offline-hindi-typing
 
 Benefits of Offline hindi Typing:

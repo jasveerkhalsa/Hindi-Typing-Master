@@ -7,7 +7,7 @@ If you do not want to download online hindi typing software or offline software 
 
 👇👇👇 Use Online Hindi Typing Language 👇👇👇👇
 
-https://www.typingpoint.com/hindi/offline-hindi-typing
+https://www.typingpoint.com/hindi/online-hindi-typing
 
 Offline Hindi typing Language
 If you do not have internet or do not have internet all the time and you have problems using online hindi typing then you can use our offline software. With our offline software you can easily learn hindi typing without internet. To use offline hindi typing software click on the link below:
